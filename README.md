@@ -1,1 +1,0 @@
-# Ahmëd Shäykh PortFolio!
